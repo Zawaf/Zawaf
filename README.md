@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fwaaz
+- 👋 Hi, I’m @Zawaf
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on All
